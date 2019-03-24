@@ -1,1 +1,0 @@
-# Pawe-Czaja-lab2N
